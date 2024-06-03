@@ -10,4 +10,5 @@
 
 ![изображение](https://github.com/beast86m/db12_2/assets/47268167/e4f9bc2d-337e-4e89-a574-6465af1ef5f7)
 
-![изображение](https://github.com/beast86m/db12_2/assets/47268167/c8d949a9-bd51-4ed7-8b48-d5e7a3344803)
+![изображение](https://github.com/beast86m/db12_2/assets/47268167/e96a7fa9-a6e7-4ad4-af08-91579e60d029)
+
