@@ -12,3 +12,8 @@
 
 ![изображение](https://github.com/beast86m/db12_2/assets/47268167/e96a7fa9-a6e7-4ad4-af08-91579e60d029)
 
+
+**Задание 2**
+
+
+![изображение](https://github.com/beast86m/db12_2/assets/47268167/dc59d9e9-d581-4316-8692-67fb64df8251)
