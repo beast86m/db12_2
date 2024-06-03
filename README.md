@@ -16,4 +16,5 @@
 **Задание 2**
 
 
-![изображение](https://github.com/beast86m/db12_2/assets/47268167/dc59d9e9-d581-4316-8692-67fb64df8251)
+![изображение](https://github.com/beast86m/db12_2/assets/47268167/c842cb05-74ca-4c4b-89a1-78a52d0035a5)
+
